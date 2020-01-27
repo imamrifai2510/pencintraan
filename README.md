@@ -1,0 +1,2 @@
+# pencintraan
+hidup adalah pencitraan
